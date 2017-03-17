@@ -2,11 +2,11 @@
 
 To post to this forum, you have agreed to the hosting platform's Terms of Service. You also agree to follow the standards and guidelines laid out below.
 
-In the interest of fostering an open and welcoming collaborative environment, we as participants and moderators pledge to making participation in this discussion forum a harassment-free experience for everyone.
+In the interest of fostering an open and welcoming collaborative environment, we as participants and moderators pledge to make participation in this discussion forum a harassment-free experience for everyone.
 
 We believe in honest and open discussion and collaboration that always maintains a courteous respect for the opinions and positions of others. We believe that promoting a respectful discourse and sharing of ideas leads to a stronger, better informed community.
 
-We expect every member of the SmallWorlds community to be respectful to others and to follow the Forums Standards and Guidelines. Individuals who do not follow these may lose posting privileges without warning.
+We expect every member of the this community to be respectful to others and to follow the Forum Standards below. Individuals who do not follow these may lose posting privileges without warning.
 
 ## Forum Standards
 
